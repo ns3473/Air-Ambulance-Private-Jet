@@ -1,0 +1,2 @@
+# Air-Ambulance-Private-Jet
+This Project to service humanity every where this planet,  black or white specially poor peoples or peoples who needs urgent Medvedev with Air Ambulance  fully equipments as ICU. Hope to find the right peoples who could do something greater in their life. Evey moment there  are people die ,and the same time other people buy art and paintings by Millions and Millions without aby benefit for them and the humanity, let see who have brave heart to serve humankind ,thanks for you looking to my project hope to find the right people to support, thanks 
